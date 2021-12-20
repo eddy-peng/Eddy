@@ -1,2 +1,6 @@
 # Eddy
-Who am I?
+
+Hello There 👀
+
+- 🧑‍🎓 I am a Sophomore at the University of Washington
+- 
